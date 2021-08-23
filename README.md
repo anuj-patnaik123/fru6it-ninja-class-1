@@ -1,0 +1,1 @@
+# fru6it-ninja-class-1
